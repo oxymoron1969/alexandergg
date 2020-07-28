@@ -8,5 +8,5 @@ Lover of AI DevOps and make our intelligent models the capability to deploy ever
 
 ## Sharing updates on:
 
-- <a href="https://www.linkedin.com/in/monicampowell/">LinkedIn</a>
+- <a href="https://www.linkedin.com/in/alexander-gonz%C3%A1lez-0b388177/">LinkedIn</a>
 - <a href="https://twitter.com/alexndrglez">Twitter</a>
