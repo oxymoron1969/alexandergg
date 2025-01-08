@@ -1,3 +1,11 @@
+Like to take what you say and simplify it for broader consumption. Worked with Brooks Automation Software Engineers to do the same.
+william.hunter1969@outlook.com
+
+
+
+
+
+
 <img src="https://raw.githubusercontent.com/alexandergg/alexandergg/master/gh-header-image-cropped.png" width="1000" height="300">
 
 I'm a software engineer who is passionate about making open-source more accessible, creating technology to elevate people, and building community. 
